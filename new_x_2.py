@@ -1,1 +1,1 @@
-Added by Y - new x2 file
+added by X and Y - new x2 file
